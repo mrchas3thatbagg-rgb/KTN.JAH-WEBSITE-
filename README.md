@@ -19,8 +19,8 @@ Listen to KTN.JAH on:
 
 ### Featured Projects
 
-- **BIG DREAMZ**
-- **Me n Bro**
+- **TAKE HIS CAR!**
+- **This shi so loud**
 - **The ONE**
 - **Feel How I Feel**
 
